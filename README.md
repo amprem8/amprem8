@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @amprem8
 - 👀 I’m interested in coding 
-- 🌱 I’m currently learning NATIONAL ENGINEERING COLLEGE 
+- 🌱 I’m currently learning at NATIONAL ENGINEERING COLLEGE 
 - 💞️ I’m looking to collaborate on Google 
 - 📫 How to reach me ...
 
